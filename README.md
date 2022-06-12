@@ -6,6 +6,6 @@
 [Инстаграм](https://www.instagram.com/carlocarlocarlocarlocarlo/)<br>
 [Видосики](https://www.youtube.com/channel/UCa2Oe689BiGiE1e0SV4l9ew)<br>
 [Пообщаться можно здесь](https://vk.me/join/uNGo_e4lpQimftKkMFtO0WsmgifGtfISQjc=)<br><br>
-[Поддержка проектов](https://vk.com/bycarlo?w=app6471849_-114519110)<br>
+[Поддержка проектов](https://vk.com/app6471849_-114519110)<br>
 
 Вся информация опубликована в ознакомительных целях и не может быть использована в коммерческих проектах.
