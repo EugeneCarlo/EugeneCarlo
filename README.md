@@ -3,6 +3,7 @@
 Синтезаторы, педали эффектов, утилиты и прочий около-музыкальный стафф<br>
 
 [Блог и новости ВКонтакте](https://vk.com/bycarlo)<br>
+[Телеграм](t.me/ass_online)<br>
 [Инстаграм](https://www.instagram.com/carlocarlocarlocarlocarlo/)<br>
 [Видосики](https://www.youtube.com/channel/UCa2Oe689BiGiE1e0SV4l9ew)<br>
 [Пообщаться можно здесь](https://vk.me/join/uNGo_e4lpQimftKkMFtO0WsmgifGtfISQjc=)<br>
